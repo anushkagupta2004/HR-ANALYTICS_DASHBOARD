@@ -29,6 +29,8 @@ Learning of this project
 <br>
 
 -gained employee trust
+![Screenshot 2024-10-24 122552](https://github.com/user-attachments/assets/1933d41e-0a9c-41cc-b3a5-4ff84c62d771)
+
 
 
 
